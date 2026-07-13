@@ -1,4 +1,4 @@
-#  Hi, I'm Mikhail
+#  Hi, I'm Miсhail
 
 **Machine Learning Engineer** based in Saint Petersburg
 
