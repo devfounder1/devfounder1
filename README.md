@@ -64,7 +64,7 @@
 ##  Contact
 
 - 📧 **Email:** [noo_noo1999@mail.ru](mailto:noo_noo1999@mail.ru)
-- 📱 **Phone:** +7 (911) 183-94-70
+- 📱 **Telegram:** SHred_cat
 - 📍 **Location:** Saint Petersburg, Russia
 
 ---
